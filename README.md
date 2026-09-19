@@ -1,2 +1,2 @@
 # python-practice
-my python programming practice
+be orginal bcz orginal is worth more than copy
